@@ -1,0 +1,1 @@
+Este es un mensaje sobre la actividad inicial de DAW.
